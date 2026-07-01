@@ -6,14 +6,14 @@ https://chromeheartsitaly.com/
 # Our Collection
 Felpa Chrome Hearts
 https://chromeheartsitaly.com/hoodie/
+
 Chrome Hearts Jeans
-
 https://chromeheartsitaly.com/jeans/
+
 Chrome Hearts Jwelery
-
 https://chromeheartsitaly.com/gioielli-chrome-hearts/
-Chrome Hearts Cap
 
+Chrome Hearts Cap
 https://chromeheartsitaly.com/cappello/
 
 # Content Platform
