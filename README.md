@@ -25,5 +25,15 @@ Wordpress
 
 https://fitflair3.wordpress.com/2026/06/24/chrome-hearts-giacca-lincontro-perfetto-tra-lusso-e-streetwear/
 
+# Brand Profiles
+
+Notion 
+
+https://app.notion.com/p/Chrome-Hearts-Clothing-Bold-Identity-in-Street-Fashion-3361862b9d7680d0a879f5a18c192c0f
+
+Product Hunt
+
+https://www.producthunt.com/p/general/chrome-hearts-italia
+
 
 
